@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @MedAymn Boulsane 
+- 👀 I’m interested in Money ...
+- 🌱 :(...
+- 📫 How to reach me
+- aymen____bls on instgram
+- Aymen Bls on face
+- Aymen Bls on twiter and all the other social media 
+- ...
+
